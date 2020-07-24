@@ -1,0 +1,1 @@
+[ladisnosel.cz](ladisnosek.cz)
